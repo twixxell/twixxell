@@ -1,3 +1,4 @@
+READ.ME IS FOR A FRIEND! 
 ![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
