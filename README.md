@@ -1,4 +1,4 @@
-top lazy.
+too lazy. 😭😭
 
 
 ![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
@@ -13,15 +13,15 @@ top lazy.
 
 
 ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀text ✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤText
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤHI!HI!HI! :3
 
  
 <details>
  <summary> $${\color{#FFFFFF} sign \space my \space ata\space pls!!}$$</summary>
 
- (˶' ꒳ '˶) text
+ (˶' ꒳ '˶) meow
 <br>
-<sub>[新book](LINK)</sub> ◜✦◞ <sub>[straw](LINK)</sub> ◜✦◞ <sub>[prns](LINK)</sub> ◜✦◞ <sub>[guns](LINK)</sub> ◜✦◞ <sub>[wall](LINK)</sub>
+<sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxel-Twixxen)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
 </details>
 
