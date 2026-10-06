@@ -1,4 +1,4 @@
-READ.ME IS FOR A FRIEND! 
+top lazy.
 
 
 ![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
