@@ -1,9 +1,9 @@
-too lazy. 😭😭
+too lazy. 😭😭 school ihysm bro
 
 
-![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
+![Friends!](https://img.shields.io/badge/Twix-bars-2f3232?style=flat&labelColour=e7728f)
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
+[![twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=3000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
 
 
 
