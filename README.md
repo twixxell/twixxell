@@ -1,9 +1,9 @@
 too lazy. 😭😭 school ihysm bro
 
 
-![Friends!](https://img.shields.io/badge/Twix-bars-2f3232?style=flat&labelColour=e7728f)
+![Friends!](https://img.shields.io/badge/Twix-Bars-2f3232?style=flat&labelColour=e7728f)
 
-[![twix bars](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=3000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
+[![twix bars](https://hits.sh/github.com/twixxell.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=3000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/twixxell/)
 
 
 
@@ -12,12 +12,12 @@ too lazy. 😭😭 school ihysm bro
 
 
 
-${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀text ✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤHI!HI!HI! :3
+${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀HI!HI!HI! ✦}}$ 
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤBLBLBLBL :3
 
  
 <details>
- <summary> $${\color{#FFFFFF} sign \space my \space ata\space pls!!}$$</summary>
+ <summary> $${\color{#FFFFFF} hey \space lol \space ♡ \space !!!}$$</summary>
 
  (˶' ꒳ '˶) meow
 <br>
@@ -25,6 +25,10 @@ ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀text ✦}}$
 
 </details>
 
+<div align="left"> 
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ximgbhqd65cc3e2rgnh3xvbuny&cover_image=true&theme=novatorem&show_offline=false&background_color=E6CDC8&interchange=false&profanity=false&bar_color=E6CDC8&bar_color_cover=false">
+  </a>
 
 <br/>
 <p align="center">${\textsf{\color{#fffff} Text}}$ 
@@ -37,15 +41,13 @@ ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀text ✦}}$
 
 <br/>
 <p aling="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-<img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />
-  ° Sign mi Ata !! pls!! . 
-  <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/0ee696b72b608327069640ef824615bd026d533e/tumblr_287d13cb87f6f46a872ba010276a6efc_a030fdc2_75.gif" width="30" />
+  sup
 </p>
 
 
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            text lol
+⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            hi
 
 <br/>
 <p align="center">${\textsf{\color{#fffff} text}}$ 
@@ -69,22 +71,7 @@ ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀text ✦}}$
 $${\color{#FFFFF} Text! \space text \space text}$$  <sub>Text or link here lol</sub>
 <br/>
 <br/>
-$${\color{#FFFFFF} text !}$$ ♡
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
-<sub>[](https://github.com/)</sub>
+sub>
 
 ◜✦◞ㅤ
 ㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
