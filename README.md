@@ -7,16 +7,16 @@
 
 
 
-<img width="400" src="" alt="" align="right" width="300"/></p>
+<img width="400" src="https://github.com/twixxell/twixxell/blob/41f974c620ab57c835e0e5a4ee52f7c901ccf112/Untitled87_20261004144236.png" alt="" align="right" width="300"/></p>
 
 
 
-${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀HI!HI!HI! ✦}}$ 
+<sub> ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀HI!HI!HI! ✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤBLBLBLBL
 
  
 <details>
- <summary> $${\color{#FFFFFF} hi \space lol \space ! \space !!!}$$</summary>
+ <summary> $${\color{#FFFFFF} hi \space wazzu \space  \space °}$$</summary>
 
  (˶' ꒳ '˶) meow
 <br>
@@ -28,10 +28,13 @@ ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀HI!HI!HI! ✦}}$
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31v62dja5p3bxgvzgrs3tryjod7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=true">
   </a>
-</p> 
-
 </p>
 
 <br/>
-<p align="center">${\textsf{\color{#fffff} Text}}$ 
+<sub> hey can you sign my Ata? /not forcing,
+<br/>
+</p>
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} ♡}}$ 
  
