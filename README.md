@@ -1,4 +1,3 @@
-too lazy. 😭😭 school ihysm bro
 
 
 ![Friends!](https://img.shields.io/badge/Twix-Bars-2f3232?style=flat&labelColour=e7728f)
@@ -8,16 +7,16 @@ too lazy. 😭😭 school ihysm bro
 
 
 
-<img width="400" src="" alt="uhh" align="right" width="300"/></p>
+<img width="400" src="" alt="" align="right" width="300"/></p>
 
 
 
 ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀HI!HI!HI! ✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤBLBLBLBL :3
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤBLBLBLBL
 
  
 <details>
- <summary> $${\color{#FFFFFF} hey \space lol \space ♡ \space !!!}$$</summary>
+ <summary> $${\color{#FFFFFF} hi \space lol \space ! \space !!!}$$</summary>
 
  (˶' ꒳ '˶) meow
 <br>
