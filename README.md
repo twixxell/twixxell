@@ -34,4 +34,6 @@
 </p>
 <br>
  <p align="center">${\textsf{\color{#fffff} do mot mind what am listening tho. . .}}$ 
- 
+ <br>
+ <p aling="center">
+    mostly listening russian songs idfk... 
