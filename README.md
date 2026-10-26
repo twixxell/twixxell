@@ -14,7 +14,7 @@
 
  
 <details>
- <summary> $${\color{#FFFFFF} hi \space wazzu \space  \space °}$$</summary>
+ <summary> $${\color{#FFFFFF} Sign \space Ata \space and \space Straw}$$</summary>
 
  (˶' ꒳ '˶) meow
 <br>
