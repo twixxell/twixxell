@@ -29,14 +29,21 @@
 </p>
 
 <br/>
-<sub> hey can you sign my Ata? /not forcing,
+<sub> sign ata. feel free to add me on discord 
 <br/>
 </p>
 <br>
- <p align="center">${\textsf{\color{#fffff} do mot mind what am listening tho. . .}}$ 
- <br>
+ <p align="center">${\textsf{\color{#fffff} My answer is here . }}$ 
+  <br>
+  <br/>
+  
  <p aling="center">
-    And plus for the ppl who asks me on my sp "why u still supporting twixxel" my answer is here. : 
+
+
+
+
+
+  And plus for the ppl who asks me on my sp "why u still supporting twixxel" my answer is here . : 
 
 
   I still support him cuz it wasn't his fault.  
