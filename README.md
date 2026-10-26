@@ -39,22 +39,31 @@
   
  <p aling="center">
 
-   And plus for the ppl who asks me on my sp "why u still supporting twixxel" my answer is here . : 
+   And for the ppl who asks me on my sp "why u still supporting twixxel" my answer is here . : 
 
 <br>
 
-  I still support him cuz it wasn't his fault.  
+   I still support him cuz it wasn't his fault.  
 
-  Ted was force him to tell he's not 16, he was just forced,  even idaios at first tells he's 16,
+   Ted was force him to tell he's not 16, he was just forced,  
+   
+   even Idaios at first tells he's 16,
 
- <br>
+  <br>
+
+   Like the first I mean in the verity series middles or lasts,  
+
+   the day ppl start shipping twixxel and idaios.
+  
+  <br>
   
    And and. PPL WHO THREATENED A CHILD/MINOR LIKE THAT JUST GO HELL. 
-
-  YOU GUYS ARE CALLING HIM PROBLEMATIC CUZ ONLY HE JUST FORCED LOOK "FORCED" TO LIE HIS AGE. 
+  
+   YOU GUYS ARE CALLING HIM PROBLEMATIC CUZ ONLY HE JUST FORCED LOOK "FORCED" TO LIE HIS AGE. 
 
   <br>
   
-  Just don't int me if you don't respect twixxel, idm u support,  
+   Just don't int me if you don't respect twixxel, idm u support,  
   
-  but don't int me if ur not respecting him.
+   but don't int me if ur not respecting him.
+ 
