@@ -66,4 +66,18 @@
    Just don't int me if you don't respect twixxel, idm u support,  
   
    but don't int me if ur not respecting him.
- 
+
+  <br>
+  
+  The Racists,  Part is gonna write soon as well too,
+
+  <br>
+  And the ppl say I'm Racists,  IM NOT A RACISTS WHY SHOULD I BE A RACISTS WHILE I GOT SO MANY BLACK FRIENDS??? 
+
+ <br>
+  
+  And they all nice black ppl are nice ppl. 
+  
+  <br> 
+    
+  and don't call me Racists, please bro.
