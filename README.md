@@ -68,11 +68,16 @@
    but don't int me if ur not respecting him.
 
   <br>
-  
+   
   The Racists,  Part is gonna write soon as well too,
 
   <br>
-  And the ppl say I'm Racists,  IM NOT A RACISTS WHY SHOULD I BE A RACISTS WHILE I GOT SO MANY BLACK FRIENDS??? 
+  
+  And the ppl say I'm Racists,  IM NOT A RACISTS 
+
+  <br>
+    
+  WHY SHOULD I BE A RACISTS WHILE I GOT SO MANY BLACK FRIENDS??? 
 
  <br>
   
