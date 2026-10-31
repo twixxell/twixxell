@@ -16,7 +16,7 @@
 <details>
  <summary> $${\color{#FFFFFF} Sign \space Ata \space and \space Straw}$$</summary>
 
- (˶' ꒳ '˶) meow
+ (˶' ꒳ '˶) Twix
 <br>
 <sub>[新book](https://twixxel.atabook.org)</sub> ◜✦◞ <sub>[straw](https://spokeshere-twixxen.straw.page)</sub> ◜✦◞ <sub>[prns](https://pronouns.cc/@Twixxenn-Twixxel)</sub> ◜✦◞ <sub>[guns](https://guns.lol/twixell)</sub> ◜✦◞ <sub>[wall](https://walloftext.co/twixxel)</sub>
 
@@ -69,20 +69,40 @@
 
   <br>
    
-  The Racists,  Part is gonna write soon as well too,
+  The Racists,  Part is here too. read it all .
+
+  <br>
+
+  Turns out as the "blackmail" was a joke that twixxel had seemed to have been taken seriously. 
 
   <br>
   
-  And the ppl say I'm Racists,  IM NOT A RACISTS 
+He never did said the word other than that and he apologized profusely alot. 
+
+  <br>
+
+There is also a rumor of him saying  that N-slur A few months back; 
+
+  <br>
+
+  I had watched the clip myself many times, and as I'm learning German speaker, He has said the
+
+  <br>
+
+  slang term  "Digga" , you guys mustve hear it as N-slur . but it's not. "Digga", which is
+
+  <br>
+
+  "bro" or "dude" in German, I'm open to corrections and I stand and support Twixxel.
+ 
+  <br>
+  
+  And the ppl say I'm Racists,  IM NOT A RACISTS ! please 
 
   <br>
     
-  WHY SHOULD I BE A RACISTS WHILE I GOT SO MANY BLACK FRIENDS??? 
+  Why should I be a Racists while I have black friends?? they nice, and don't call me Racists please, 
 
  <br>
-  
-  And they all nice black ppl are nice ppl. 
-  
-  <br> 
-    
-  and don't call me Racists, please bro.
+   
+  And don't call me Racists, please bro. please.
