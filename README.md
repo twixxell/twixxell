@@ -1,6 +1,6 @@
 ![Friends!](https://img.shields.io/badge/Twix-Bars-2f3232?style=flat&labelColour=e7728f)
 
-[![null solders](https://hits.sh/github.com/twixxell.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=3000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/twixxell/)
+[![Twixbars](https://hits.sh/github.com/twixxell.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=3000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/twixxell/)
 
 
 
